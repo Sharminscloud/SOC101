@@ -5,7 +5,7 @@
 ## Heres all the work I had to do in this course: Form GROUP and 2 assignments were GROUP WORK!, 1 group presentation(each person will have 1 slide or poster), 3 quizzzes(n-1).
 
 ### QUIZ:1
-### Syllabus: 
+Syllabus: 
 1) What is sociology?
 What is sociology?
 Sociological Imagination, The Development of Sociological Thinking: Theories
