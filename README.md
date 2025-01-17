@@ -67,3 +67,6 @@ Syllabus:
 1.Changing economies: the
 great transformations 2. Disorganised capitalism: flexibility and the world after Fordism 3. The global revolution: the global economy 4. Economies: differing kinds: capitalism, socialism  5. Global capitalism: triumph or crisis? 6. Gender, women and work 7. The spread of part-time and flexible work
 5) THE ENVIRONMENT (Anthony Giddense, page 541): A SOCIOLOGICAL ISSUE?, GLOBAL ENVIRONMENTAL THREAT, BIODIVERSITY, GLOBAL WARMING AND CLIMATE CHANGE, ENERGY, SUSTAINABLE DEVELOPMENT
+
+
+Feculty resources: https://drive.google.com/drive/folders/1Demv7eL2Gmr7d2HkmUNLvnGJm6LAhQlH
