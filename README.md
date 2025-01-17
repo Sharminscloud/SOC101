@@ -1,4 +1,7 @@
 # Feculty: ALM
+##BOOKS:
+1. Gidens- https://drive.google.com/file/d/1k_6QZMWQ2cXbVcgFh31GVXOpUxNUHpjz/view?usp=sharing 
+2. John and ken- https://drive.google.com/file/d/1ceAwYWyGKgy3iljM3N6nb9tXCDyocnFC/view?usp=sharing 
 ## Heres all the work I had to do in this course: Form GROUP and 2 assignments were GROUP WORK!, 1 group presentation(each person will have 1 slide or poster), 3 quizzzes(n-1).
 
 ### QUIZ:1
